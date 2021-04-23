@@ -1,6 +1,10 @@
+
+
+
 ### Hey! I'm Ahmed and I do a lot of stuff! ✨💻
 
-<img src="https://i.ibb.co/LvnfBj2/Untitled-2.png">
+<img src="https://i.ibb.co/yF1N6cq/Intro.gif">
+
 
 
 
