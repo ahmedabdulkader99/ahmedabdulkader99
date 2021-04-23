@@ -5,7 +5,7 @@
 ### Hey! I'm Ahmed and I do a lot of stuff! ✨💻
 
 
-<img src="https://im6.ezgif.com/tmp/ezgif-6-31c5b4f46cfd.gif"></img>
+<img src="https://i.imgur.com/DdtPwLJ.gif"></img>
 
 
 
